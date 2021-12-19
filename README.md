@@ -1,1 +1,0 @@
-# mancoins.bumper.com
